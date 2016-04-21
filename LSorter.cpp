@@ -36,7 +36,6 @@ https://www.youtube.com/watch?v=jOyYaBHyN28
 https://www.youtube.com/watch?v=o5wJkJJpKtM
 http://faculty.salina.k-state.edu/tim/CMST302/study_guide/topic7/bubble.html
 
-I worked with Alexander Chowdhury on this assignment.
 
 
 
